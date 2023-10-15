@@ -16,4 +16,4 @@ Twine helps businesses ensure they never miss a client opportunity. With our int
 
 ## Contact
 - **Website:** [www.usetwine.com](https://www.usetwine.com)
-- **Get Started:** [Contact Us For Pricing](https://8gp470emnkd.typeform.com)
+- **Get Started:** [Contact Us For Pricing](https://calendly.com/divyesh-hv0/introductory-call)
